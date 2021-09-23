@@ -22,11 +22,11 @@ but I'm still don't know wich one.
 ![This is an image](https://www.extra.com.pe/wp-content/uploads/2021/06/Escabeche-de-pollo.jpg)
 
 ღ My hobbies are💭:
-## Read online books
-## Learn new coreographys
-## Listen music of my favorite band ⟭⟬7 
+• Read online books
+• Learn new coreographys
+• Listen music of my favorite band ⟭⟬7 
 
-# That's all, nice to meet you 😁✌🏻
+###### That's all, nice to meet you 😁✌🏻
 
 You can follow me in my instagram (https://www.instagram.com/imyoursou_u/). It's the only social network that I use.
 
