@@ -1,17 +1,33 @@
-# **Hola a todos🙌🏻**
+# **HI EVERYONE!🙌🏻**
 
-###### Permítame presentarme:
+###### Let me introduce myself to you:
 
-• Me llamo Margiory pero mi familia y amigos me llaman Margio✨
+• My name is ***Margiory*** but my family and friends usually calls me ***Margio***✨
 
-• Tengo 17 años
+• I'm *17 years old*
 
-• Estudio Ciencias de la Computación en UTEC 🏢
+• I'm studying ***Computer Science*** 🏢
 
-• Desde pequeña me ha gustado mucho las computadoras y como la tecnología avanzaba conforme pasaban los años
-es por eso que elegí esta carrera ❣
+• I love the way how technology advances as the years goes👩🏻‍💻
 
-•  Mi comida favorita es :
-###### ESCABECHE DE POLLO
-![thi is an image](https://www.extra.com.pe/wp-content/uploads/2021/06/Escabeche-de-pollo.jpg)
+### SOMETHING EXTRA ABOUT ME:
+
+ღ I'm consider myself the biggest BTS ARMY ⟭⟬⁷, really I'm in love with those seven boys💜
+
+ღ As you can read, I'm writing this in English. I speak 2 languages: Spanish and English, and also I want to learn another more
+but I'm still don't know wich one.
+
+ღ My favorite food is 🍽: 
+## **ESCABECHE DE POLLO**  
+![This is an image](https://www.extra.com.pe/wp-content/uploads/2021/06/Escabeche-de-pollo.jpg)
+
+ღ My hobbies are💭:
+## Read online books
+## Learn new coreographys
+## Listen music of my favorite band ⟭⟬7 
+
+# That's all, nice to meet you 😁✌🏻
+
+You can follow me in my instagram (https://www.instagram.com/imyoursou_u/). It's the only social network that I use.
+
 
