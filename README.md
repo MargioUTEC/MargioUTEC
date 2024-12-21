@@ -1,8 +1,5 @@
-# **Holaaaa!😛🙌🏻**
+# **Hola!🙌🏻**
 
-• Me llamo ***Margiory*** pueden decirme ***Margio***✨
+• Me llamo **Margiory** pueden decirme ***Margio*** y tengo **20 años**
 
-• Tengo *20 años* y cumplo el *22/04/2004*
-
-• Estudio ***Computer Science*** 🏢
-
+• Actualmente soy estudiante del sexto ciclo de ***Computer Science*** 🏢
